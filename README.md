@@ -1,0 +1,1 @@
+This Github repository contains the print templates corresponding with the drive document page: Curacao 2026/ Content Vakantiebeurs. Please refer to the shared renders of the booth for the location of the prints.
